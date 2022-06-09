@@ -1,5 +1,5 @@
 ## Hi there 👋
-#### I am a student of information systems and fraud prevention analyst :woman_technologist::female_detective:
+#### I am a student of information systems :woman_technologist:
 
 - :rocket: Work at Asaas
 - :headphones: I like listening to music and playing guitar
